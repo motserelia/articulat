@@ -1,3 +1,0 @@
-# articulat
-# articulat
-# articulat
